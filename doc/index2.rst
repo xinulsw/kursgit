@@ -1,0 +1,1 @@
+Alternatywny początek
